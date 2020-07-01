@@ -1,1 +1,0 @@
-# nandana-sreenivasan.github.io
